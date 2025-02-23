@@ -7,7 +7,7 @@ saat ini kesibukan saya hanyalah belajar dan belajar, dan github merupakan salah
 
 📫 you guys can reach me on
 [Linkedin](www.linkedin.com/in/alifrahman21) and
-[Instagram](https://www.instagram.com/4444lipp/)
+[Instagram](https://www.instagram.com/alifrahmannm/)
 
 see u guys 👋
  
